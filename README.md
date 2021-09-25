@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @theinderbrar
-- 👀 I’m interested in writing
-- 🌱 I’m currently learning designing skills
-- 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me ( instagram - @inderpal_singh_brar )
 
 <!---
