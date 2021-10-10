@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @theinderbrar
-- 📫 How to reach me ( instagram - @inderpal_singh_brar )
+- Reach me by instagram @inderpal_singh_brar
 
 <!---
 theinderbrar/theinderbrar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
